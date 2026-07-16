@@ -1,5 +1,5 @@
 # SleeppySX7
-## My Team Name- SleeppySX7
+## My Org Name- SleeppySX7
 ### Players Name- 
 1. SleeppySX7Zeeloz 
 2. SleeppySX7MaxxUS7
@@ -8,4 +8,4 @@
 
 
 # Join Our Org 
-##SleeppySX7
+### SleeppySX7 - BGMI.
