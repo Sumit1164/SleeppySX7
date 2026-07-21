@@ -8,6 +8,8 @@
 5. SleeppySX7FuddoPiee
 6. SleeppySX7CheaterKasu - > 88102509585
 
+<p>Kasu is IGL but he is cheater he lies to me</p>
+
 
 # Join Our Org 
 ### SleeppySX7 - BGMI.
