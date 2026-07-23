@@ -11,5 +11,10 @@
 <p>Kasu is IGL but he is cheater he lies to me</p>
 
 
+<h2>Hey Everyone</h2>
+<h4>That day our best GOAT player goes to Depreation Due to some mental presure</h4>
+<h6>GOAT: SleeppySX7LetMeCook</h6>
+
+
 # Join Our Org 
 ### SleeppySX7 - BGMI.
