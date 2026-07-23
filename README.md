@@ -12,7 +12,7 @@
 
 
 <h2>Hey Everyone</h2>
-<h4>That day our best GOAT player goes to Depreation Due to some mental presure</h4>
+<h4>That day our best GOAT player goes to Depression Due to some mental presure</h4>
 <h6>GOAT: SleeppySX7LetMeCook</h6>
 
 
