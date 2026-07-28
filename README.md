@@ -21,5 +21,10 @@
 
 <p>So live now custom book your slots!</p>
 
+
+<h1>Good News For Our Fans</h1>
+<p>Finally after 2 months, Our Website is 80% Done!</p>
+<h3>Thanks To LearnWithSumit🖤</h3>
+
 # Join Our Org 
 ### SleeppySX7 - BGMI.
