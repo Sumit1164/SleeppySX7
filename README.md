@@ -26,5 +26,8 @@
 <p>Finally after 2 months, Our Website is 80% Done!</p>
 <h3>Thanks To LearnWithSumit🖤</h3>
 
+<h4>Now a big Give Way by BrokenShubh</h4>
+
+
 # Join Our Org 
 ### SleeppySX7 - BGMI.
