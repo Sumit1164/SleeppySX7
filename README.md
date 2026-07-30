@@ -28,6 +28,9 @@
 
 <h4>Now a big Give Way by BrokenShubh</h4>
 
+<p>30th July 今天早上我做了一個夢，夢里卡什含淚喊著「蘇米特……」然後我醒了。</p>
+
+<h2>So register now!</h2>
 
 # Join Our Org 
 ### SleeppySX7 - BGMI.
